@@ -52,7 +52,7 @@ Notes sharing, attendance and student networking.
 
 ## 🌐 Connect With Me
 
-- LinkedIn: Add your link
+- LinkedIn: (https://www.linkedin.com/in/aditya-raj-pal-198383343?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 - Portfolio: Add your link
-- Email: your-email@gmail.com
+- Email: 6063.adityarajpal@gmail.com
 
